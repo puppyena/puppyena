@@ -4,6 +4,6 @@
 
 ![](https://file.garden/aldWmQRfKCChSA5t/Untitled37_20260726071214.png) 
 
-‎ ‎ ‎ ︶︶ [s𝗍rᥲᥕ⍴ᥲgᥱ](https://puppy-ena.straw.page) 𐂯 [ᥲ𝗍ᥲᑲ᥆᥆k](https://tangleduplove.atabook.org/) 𐂯 [gᥙᥒs.ᥣ᥆ᥣ](https://guns.lol/puppyena) 𐂯 [⍴r᥆ᥒ᥆ᥙᥒs.ᥴᥴ](https://pronouns.cc/@mizukana) ︶︶
+‎ ‎ ‎ ︶︶ [s𝗍rᥲᥕ⍴ᥲgᥱ](https://puppy-ena.straw.page) 𐂯 [ᥲ𝗍ᥲᑲ᥆᥆k](https://tangleduplove.atabook.org/) 𐂯 [gᥙᥒs.ᥣ᥆ᥣ](https://guns.lol/mizuenaa) 𐂯 [⍴r᥆ᥒ᥆ᥙᥒs.ᥴᥴ](https://pronouns.cc/@mizukana) ︶︶
 
 ![](https://github.com/user-attachments/assets/8402e523-22d2-4e47-8eba-21a56ce5fa98)
