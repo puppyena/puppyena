@@ -1,5 +1,5 @@
 ![1000028485](https://github.com/user-attachments/assets/f815652a-912a-42ed-9edb-a5535adf8bbe)
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Griffy&pause=1000&color=F7F1AF&width=435&lines=yowakute+gomen+ne;zurukute+gomen+ne;soredemo+tama+ni+wa;chotto+omoidashite+ne;wasurenaide+ite+ne;omoidashite+ne;wakaremichi+ni+tatta+to;wakatta+no+ni+shiawase+o;negatte+shimau)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Griffy&duration=4000&pause=200&color=F7DEA2&width=435&lines=you+ask+me+how+I've+been%2C+;but+how+could+i+begin;to+tell+you+%22i+should've+chased+you%22%3F+;i+should+be+who+you're+engaged+to;lost+my+fight+with+fate;a+tug+of+war+of+leave+and+stay;i+give+in%2C+i+abdicate;i+lay+my+sword+down+anyway.;i'll+see+you+at+heaven's+gate;cause+it's+too+little...+way+too+late.)](https://git.io/typing-svg)
 
 ![1000028440](https://github.com/user-attachments/assets/f5ab231d-01bd-4544-9d10-ba7d9c1b7134)
 
