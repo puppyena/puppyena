@@ -15,7 +15,7 @@
 
 ![1000028480](https://github.com/user-attachments/assets/8392b5a5-008e-4009-a834-8c4e96b015f0)
 
-[atabook](https://tangleduplove.atabook.org/)‎ ‎ ‎ ‎ ‎ ♫‎ ‎ ‎ ‎ ‎ [strawpage](https://puppy-ena.straw.page/) ‎ ‎ ‎ ‎ ‎ ♫‎ ‎ ‎ ‎ ‎ [pronouns.page](https://en.pronouns.page/@viviena)‎ ‎ ‎ ‎ ‎ ♫‎ ‎ ‎ ‎ ‎ [pronouns.cc](https://pronouns.cc/@mizuenaa)‎ ‎ ‎ ‎ ‎ ♫‎ ‎ ‎ ‎ ‎ [guns.lol](https://guns.lol/puppyena)‎ ‎ ‎ ‎ ‎ ♫‎ ‎ ‎ ‎ ‎ [link.tree](https://linktr.ee/heatabnormal)‎ ‎ ‎ ‎ ‎ ♫‎ ‎ ‎ ‎ ‎ [pinterest](https://pin.it/2CDIkwFBh)‎ ‎ ‎ ‎ ‎ ♫‎ ‎ ‎ ‎ ‎ [pt's ena shinonome & niigo](https://github.com/pt-hall-of-media) 
+[atabook](https://tangleduplove.atabook.org/)‎ ‎ ‎ ‎ ‎ ♫‎ ‎ ‎ ‎ ‎ [strawpage](https://kitten-ena.straw.page/) ‎ ‎ ‎ ‎ ‎ ♫‎ ‎ ‎ ‎ ‎ [pronouns.page](https://en.pronouns.page/@viviena)‎ ‎ ‎ ‎ ‎ ♫‎ ‎ ‎ ‎ ‎ [pronouns.cc](https://pronouns.cc/@mizuenaa)‎ ‎ ‎ ‎ ‎ ♫‎ ‎ ‎ ‎ ‎ [guns.lol](https://guns.lol/puppyena)‎ ‎ ‎ ‎ ‎ ♫‎ ‎ ‎ ‎ ‎ [link.tree](https://linktr.ee/heatabnormal)‎ ‎ ‎ ‎ ‎ ♫‎ ‎ ‎ ‎ ‎ [pinterest](https://pin.it/2CDIkwFBh)‎ ‎ ‎ ‎ ‎ ♫‎ ‎ ‎ ‎ ‎ [pt's ena shinonome & niigo](https://github.com/pt-hall-of-media) 
 
 ![1000028486](https://github.com/user-attachments/assets/0b5fd0ba-18ce-44db-9645-032017d2bb9b)
 ![](https://github.com/user-attachments/assets/978a0a44-dd4e-4027-bd62-69bb6ff70d97) 
