@@ -1,6 +1,6 @@
 ![](https://github.com/user-attachments/assets/6f0eab51-24c7-4a20-ac5f-83cdf7f53e53) 
 
-[atabook](https://tangleduplove.atabook.org/)‎ ‎ ‎ ‎ ‎ ♫‎ ‎ ‎ ‎ ‎ [strawpage](https://kitten-ena.straw.page/) ‎ ‎ ‎ ‎ ‎ ♫‎ ‎ ‎ ‎ ‎ [pronouns.page](https://en.pronouns.page/@viviena)‎ ‎ ‎ ‎ ‎ ♫‎ ‎ ‎ ‎ ‎ [pronouns.cc](https://pronouns.cc/@mizuenaa)‎ ‎ ‎ ‎ ‎ ♫‎ ‎ ‎ ‎ ‎ [guns.lol](https://guns.lol/puppyena)‎ ‎ ‎ ‎ ‎ ♫‎ ‎ ‎ ‎ ‎ [link.tree](https://linktr.ee/heatabnormal)‎ ‎ ‎ ‎ ‎ ♫‎ ‎ ‎ ‎ ‎ [pinterest](https://pin.it/2CDIkwFBh)‎ ‎ ‎ ‎ ‎ ♫‎ ‎ ‎ ‎ ‎ [pt-hall-of-media](https://github.com/pt-hall-of-media) 
+[atabook](https://tangleduplove.atabook.org/)‎ ‎ ‎ ‎ ‎ ♫‎ ‎ ‎ ‎ ‎ [main strawpage](https://enapaws.straw.page) ‎ ‎ ‎ ‎ ‎ ♫‎ ‎ ‎ ‎ ‎ [pronouns.page](https://en.pronouns.page/@viviena)‎ ‎ ‎ ‎ ‎ ♫‎ ‎ ‎ ‎ ‎ [pronouns.cc](https://pronouns.cc/@mizuenaa)‎ ‎ ‎ ‎ ‎ ♫‎ ‎ ‎ ‎ ‎ [guns.lol](https://guns.lol/puppyena)‎ ‎ ‎ ‎ ‎ ♫‎ ‎ ‎ ‎ ‎ [link.tree](https://linktr.ee/heatabnormal)‎ ‎ ‎ ‎ ‎ ♫‎ ‎ ‎ ‎ ‎ [pinterest](https://pin.it/2CDIkwFBh)‎ ‎ ‎ ‎ ‎ ♫‎ ‎ ‎ ‎ ‎ [pt-hall-of-media](https://github.com/pt-hall-of-media) 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31io6pzcf2kzovdy3ldzrygdzpam&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=ff96b6&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31io6pzcf2kzovdy3ldzrygdzpam&redirect=true)
 
